@@ -1,4 +1,4 @@
-do not distribute or copy!
+do not distribute without permission to
 
 
 Copyright 2020 meowgle llc
